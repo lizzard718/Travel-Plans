@@ -85,3 +85,5 @@ This gentle lakeside trail is perfect for those seeking relaxation combined with
 ### **Total 5-Day Budget for 2 People: CHF 2,900-3,800** (approximately USD 3,300-4,300 or EUR 2,700-3,500)
 
 This budget assumes mid-range comfort level. Costs can be reduced by staying in budget accommodations and preparing some meals, or increased for luxury experiences. Switzerland is generally expensive, but the investment returns exceptional natural beauty and memorable experiences.
+
+![Mountains](https://images.unsplash.com/photo-1464822759023-fed622ff2c3b?q=80&w=1170&auto=format&fit=crop&ixlib=rb-4.1.0&ixid=M3wxMjA3fDB8MHxwaG90by1wYWdlfHx8fGVufDB8fHx8fA%3D%3D)
