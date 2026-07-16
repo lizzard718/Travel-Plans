@@ -3,7 +3,6 @@
 
 This repository contains ideas, destinations, and notes for travel during 2026–2027. You'll find proposed itineraries, packing lists, budgeting estimates, and links to useful resources. The content is organized by country and trip, with room for inspiration, planning checklists, and booking details.
 
-Contributions, suggestions, and corrections are welcome — feel free to open issues or add pull requests with new ideas or improvements.
 
 Some resources I will be using: 
 [TripAdvisor] (https://www.lonelyplanet.com/)
